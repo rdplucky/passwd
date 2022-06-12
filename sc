@@ -1,4 +1,4 @@
 game1：
-gy?x8#3x_5D-~Udpo.7k:tVZXbJdWKtH
+XCfLAs36ZRBa8,jH8HqJT*RTHyL.b#++
 game2：
-q_*>VhahG9:k?BU#PQvsjtJs_7#?^VVq
+8CC3##CqWKZr2Ai=4hCxZ7pt,Ag^xC6z
