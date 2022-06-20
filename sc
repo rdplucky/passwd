@@ -1,4 +1,4 @@
 game1：
-TKwc-f6!JH+CWh?Wo^d*E+ufV?X4*Fgt
+eZ+J=oE*bfm51!=?_!4o*+R9A7}Q63=H
 game2：
-J>_Qqh:N1a-K]jw*RyY8Kh_?h.m*3BkA
+NV1K5gt>zHX.WrRxrtf6nuJPBDR~Gb:C
