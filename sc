@@ -1,4 +1,4 @@
 game1：
-D#U5LoyFi3s}W?BcfF?6YJ3V#Ai_xor*
+z7jGMArWtke-FHihFx4s5U)@uC7V~>uG
 game2：
-6Kn%kN>g+5g0tA)W>%^o3XkDX^m+sjWr
+Eey6]},5~NVu_QmVsL_2G@CLfCdGNXk.
